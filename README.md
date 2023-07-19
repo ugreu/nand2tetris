@@ -1,1 +1,1 @@
-作業メモ
+memo written for me
